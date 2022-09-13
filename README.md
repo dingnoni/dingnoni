@@ -21,5 +21,6 @@ Here are some ideas to get you started:
               blog https://m.blog.naver.com/rladnjs1218
 
 👀 I’m currently learning c! (learning hard..)
+
 ❤️ Feel free to contact me if you have any questions or want to help
 
