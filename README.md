@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+👩🏻‍💻 I'm learning software at Gachon University.
+🔗 my link : insta https://www.instagram.com/dingnoni_
+              blog https://m.blog.naver.com/rladnjs1218
+
+👀 I’m currently learning c! (learning hard..)
+❤️ Feel free to contact me if you have any questions or want to help
+
